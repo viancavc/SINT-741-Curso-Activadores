@@ -1,3 +1,3 @@
 # Laboratorio 5
 
-Entrega de Bianca Vidal. Contenido pendiente de subir.
+Entrega de Vianca Vidal. Contenido pendiente de subir.
